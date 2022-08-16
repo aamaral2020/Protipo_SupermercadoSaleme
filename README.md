@@ -1,1 +1,0 @@
-# Protipo_SupermercadoSaleme
